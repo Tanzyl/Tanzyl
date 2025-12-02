@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tanzyl
-- 👀 I’m interested in you.
+- 👀 I’m interested in NOTHING.
 - 🌱 I’m currently learning nothing.
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me? You can't.
